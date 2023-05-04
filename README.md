@@ -1,4 +1,4 @@
-# munichmalayali
+# Munich Malayali group മ്യൂണിക്ക് മലയാളി ഗ്രൂപ്പ്
 
 ## Money transfer 
 Wise
