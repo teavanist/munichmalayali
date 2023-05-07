@@ -1,9 +1,9 @@
 # Munich Malayali group മ്യൂണിക്ക് മലയാളി ഗ്രൂപ്പ്
 
 ## Money transfer 
-Wise
-XE 
-Remitly 
+* Wise
+* XE 
+* Remitly 
 
 ## Recommended driving schools 
 Peter’s Fahrschule, Rosenheimer Platz
