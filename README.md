@@ -18,7 +18,9 @@ betina.irschik@t-online.de
 
 ## English Notary service  
 rezeption@notarkrauss.de
+
 Brienner Straße 25, 80333 München
+
 Tel:   0895454760
 
 ## Night time medical stores/Apotheke 
